@@ -1,2 +1,2 @@
 # arejayelle.github.io
-Art Portfolio
+Graphics and Art Portfolio
